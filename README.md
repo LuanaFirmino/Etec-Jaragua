@@ -1,2 +1,0 @@
-# Etec-Jaragua
-projetos
